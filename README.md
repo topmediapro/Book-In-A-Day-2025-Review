@@ -1,6 +1,6 @@
 # Book In A Day Review and Training Course - Make 10k Word AI Books 100% Free
 
-### Book In A Day Training Course reveal How to Create professional books in less than 24 hours without writing a manuscript or struggling with formatting. 
+### [Book In A Day Training Course](https://jvupsell.com/2025/03/book-in-a-day-2025-review/) reveal How to Create professional books in less than 24 hours without writing a manuscript or struggling with formatting. 
 
 Book In A Day leverages cutting-edge AI technology (completely free to use) to help you create well-structured books that readers will love. With our proven system and step-by-step implementation guide, you can produce books that look like they came from a major publisher - no writing experience or design skills needed.
 
